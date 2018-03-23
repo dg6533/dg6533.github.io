@@ -1,2 +1,3 @@
-# dg6533.github.io
-my site
+# djimon gibson
+**always on the computer**
+[video](https://vimeo.com/user8200112)
